@@ -1,0 +1,1 @@
+Pluto is een dwergplaneet in de Kuipergordel, de voorlaatste zone van ons Zonnestelsel. De dwergplaneet is vernoemd naar de Romeinse god van de onderwereld, Pluto. Pluto werd in 1930 ontdekt door de Amerikaan Clyde Tombaugh en werd tot 2006 geclassificeerd als de negende planeet. Hij heeft in de catalogus van planetoïden nummer 134340. 
